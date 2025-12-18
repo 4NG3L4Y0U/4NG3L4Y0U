@@ -12,3 +12,19 @@
 [-ask for rp]
 
 [-c+h always]
+╭ ୨୧ㆍ⏔ㆍ⏔ㆍ⏔ㆍ⏔ㆍ⏔ㆍ✧ˎ˗
+ㆍ・ㆍName's Introduction ꒱꒱
+                       ⏝ ︶ ꒦ ꒷
+ㆍ✧ㆍName﹕
+ㆍ✦ㆍAge﹕
+ㆍ✧ㆍPronouns﹕
+                       ⏝ ︶ ꒦ ꒷
+ㆍ✧ㆍLikes﹕
+ㆍ✦ㆍDislikes﹕
+                       ⏝ ︶ ꒦ ꒷
+ㆍ✧ㆍHobbies﹕
+ㆍ✦ㆍExtra Info﹕
+                       ⏝ ︶ ꒦ ꒷
+: ¨· . ·¨ : 
+  ㆍ.ㆍThanks For Reading!
+╰ ୨୧ㆍ⏔ㆍ⏔ㆍ⏔ㆍ⏔ㆍ⏔ㆍ✧ˎ˗
