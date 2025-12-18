@@ -13,7 +13,7 @@
 
 ㆍ・ㆍAngels's Introduction ꒱꒱
 
-                       ⏝ ︶ ꒦ ꒷
+⏝ ︶ ꒦ ꒷
                        
 ㆍ✧ㆍName﹕collectivley known as angel or lou
 
@@ -21,13 +21,12 @@
 
 ㆍ✧ㆍPronouns﹕they/he collectively
 
-                       ⏝ ︶ ꒦ ꒷
+⏝ ︶ ꒦ ꒷
                        
 ㆍ✧ㆍLikes﹕music,hellaverse,stranger things,little shop of horrors
 
 ㆍ✦ㆍDislikes﹕gore,rude people
-
-                       ⏝ ︶ ꒦ ꒷
+⏝ ︶ ꒦ ꒷
                        
 ㆍ✧ㆍHobbies﹕drawing,making avatars on ponyown
 
@@ -37,7 +36,7 @@
 
 [-c+h always]
 
-                       ⏝ ︶ ꒦ ꒷
+⏝ ︶ ꒦ ꒷
                        
 : ¨· . ·¨ : 
 
