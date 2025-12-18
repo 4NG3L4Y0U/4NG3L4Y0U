@@ -5,26 +5,42 @@
 
 [-sys]
 
-[-collectivley known as angel or lou]
-
-[-dni under 13]
 
 [-ask for rp]
 
 [-c+h always]
 ╭ ୨୧ㆍ⏔ㆍ⏔ㆍ⏔ㆍ⏔ㆍ⏔ㆍ✧ˎ˗
-ㆍ・ㆍName's Introduction ꒱꒱
+
+ㆍ・ㆍAngels's Introduction ꒱꒱
+
                        ⏝ ︶ ꒦ ꒷
-ㆍ✧ㆍName﹕
-ㆍ✦ㆍAge﹕
-ㆍ✧ㆍPronouns﹕
+                       
+ㆍ✧ㆍName﹕collectivley known as angel or lou
+
+ㆍ✦ㆍDNI﹕under 13,endos,basic dni
+
+ㆍ✧ㆍPronouns﹕they/he collectively
+
                        ⏝ ︶ ꒦ ꒷
-ㆍ✧ㆍLikes﹕
-ㆍ✦ㆍDislikes﹕
+                       
+ㆍ✧ㆍLikes﹕music,hellaverse,stranger things,little shop of horrors
+
+ㆍ✦ㆍDislikes﹕gore,rude people
+
                        ⏝ ︶ ꒦ ꒷
-ㆍ✧ㆍHobbies﹕
-ㆍ✦ㆍExtra Info﹕
+                       
+ㆍ✧ㆍHobbies﹕drawing,making avatars on ponyown
+
+ㆍ✦ㆍExtra Info﹕[-sys]
+
+[-ask for rp]
+
+[-c+h always]
+
                        ⏝ ︶ ꒦ ꒷
+                       
 : ¨· . ·¨ : 
+
   ㆍ.ㆍThanks For Reading!
+  
 ╰ ୨୧ㆍ⏔ㆍ⏔ㆍ⏔ㆍ⏔ㆍ⏔ㆍ✧ˎ˗
