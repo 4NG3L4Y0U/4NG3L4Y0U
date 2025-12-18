@@ -2,3 +2,8 @@
 )
 
 [ata please sign](4ng3l4y0u.atabook.org)
+[-sys]
+[-collectivley known as angel or lou]
+[-dni under 13]
+[-ask for rp]
+[-c+h always]
